@@ -1,0 +1,1 @@
+Coding my website from scratch. Starting with 7keycoaching.com!!!!
